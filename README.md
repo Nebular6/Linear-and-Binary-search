@@ -1,3 +1,2 @@
-# Linear-and-Binary-search
-Dave i'm sorry take me back please
-ITS BEING WORKED ON OK
+DAVE IM SORRYYY HERE ARE MY SORTS :)
+
